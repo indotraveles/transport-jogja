@@ -11,4 +11,4 @@ Quality police: Positive response, good team performance, reduce customer compla
 Statement mission: Customers have power to choose in this competitive and open market. The team provides high quality service along with fair and competitive pricing.
 Vision: Become a part most trusted transport company.
 
-Source: www.transportjogja.com
+
